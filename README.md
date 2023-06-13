@@ -1,0 +1,1 @@
+# MedicaLara_Projektnizadatak
